@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+Check the links that will help uploading the images (https://www.youtube.com/watch?v=TlB_eWDSMt4) Thank you.
